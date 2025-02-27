@@ -7,7 +7,8 @@ I like to keep myself busy!
 Education:
 - B.S. in Data Science
   - Concentration in Computer Science, Statistics, and Math
-- Minor in Statistics
+- Minors in Statistics and Mathematics
+- Clusters in Bioethics and Applied Economics
 
 Academic Achievements:
 - Dean's List
