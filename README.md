@@ -17,9 +17,10 @@ Academic Achievements:
 
 Work Experience
 - 2x summer intern at Regeneron Pharmaceuticals (and excited to join for a 3rd summer in 2025!)
-- Goergen Institute of Data Science Project Assistant (temp)
-- Club Sports EMT
-- Customer Service @ Stop and Shop
+- Neonatal ICU Administrative Assistant (Jan 23 - Present)
+- Goergen Institute of Data Science Project Assistant (Jan 24 - March 24)
+- Club Sports EMT (Sept 24 - Present)
+- Customer Service @ Stop and Shop (Jan 21 - May 24)
 
 Volunteer Experience
 - Crew Chief Trainee and Statistics Chair @ River Campus Medical Emergency Response Team
