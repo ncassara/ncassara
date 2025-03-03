@@ -23,7 +23,7 @@ Work Experience
 - Customer Service @ Stop and Shop (Jan 21 - May 24)
 
 Volunteer Experience
-- Crew Chief Trainee and Statistics Chair @ River Campus Medical Emergency Response Team
+- Statistics Chair and Crew Chief Trainee 802 @ River Campus Medical Emergency Response Team
 
 
 <!--
